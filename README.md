@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Glimmerax
+- 👀 I’m interested in computer games
+- 🌱 I’m currently learning how to make apps
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
